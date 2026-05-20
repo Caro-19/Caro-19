@@ -32,4 +32,4 @@
 
 * [LinkedIn](Pegar_Link_Aquí)
 * [Portfolio](Pegar_Link_Aquí)
-* Email: tu_email@ejemplo.com
+* Email: torrezcarol1902@gmail.com
