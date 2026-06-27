@@ -1,6 +1,6 @@
 # Carol Torrez
 
-### Estudiante de Diseño Web 🖌️ & Desarrolladora en formación 💻
+### Estudiante de Diseño y Desarrollo Web
 
 ¡Hola! Soy Carol. Actualmente estoy cursando mi segundo año en la **Escuela de Arte Multimedial Da Vinci**. Me considero una persona tranquila y curiosa, siempre buscando cómo mejorar mis habilidades para fusionar el diseño gráfico con la funcionalidad web.
 
